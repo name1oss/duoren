@@ -3,7 +3,7 @@
 ![81f692fcdcb0fab8a7c3487201453a9e9eaa63cf](C:\Users\Nameless-\Pictures\81f692fcdcb0fab8a7c3487201453a9e9eaa63cf.jpg)
 https://github.com/name1oss/duoren/blob/main/Screenshots/05e5a1dec1444611c89e2d1bc6488bb13be93eeb.png
 “两只俊美的麋鹿为争夺配偶打架把角卡在一起；英气的老鹰从天俯冲而下抓起在地上爬行的蛇；矫健的马儿在泥泞里打滚为了防止蚊虫叮咬；凶残的鳄鱼把在水边喝水毫无戒备心的动物拖入湖中；蹲伏过久的人物还会改变姿势单膝跪地防止腿部疲劳；能向这个世界中每一个人物打招呼或调侃……”![![54979d4952e00805bb9d10ba1097244f2af5290a](E:\Multiplayer\Screenshots\54979d4952e00805bb9d10ba1097244f2af5290a.jpg)
-
+https://i0.hdslb.com/bfs/article/54979d4952e00805bb9d10ba1097244f2af5290a.jpg@!web-article-pic.webp
 2000名员工，8年时间耗资8亿美元，得益于游戏工业体系与自身技术的登峰造极，在有如此雄厚资源奠基下，我们能在游戏中看到这些令人咋舌的细节与真实的厚重感。
 
 《荒野大镖客：救赎2》这部作品相比起Rockstar以往的作品来说，除了画面、细节这样能依靠游戏工业体系逐步成熟而越发卓越让我震撼意外，就是Rockstar对于故事创作与角色塑造的全面提升了，至少对于我来说，《荒野大镖客：救赎2》是Rockstar迄今为止最让人记忆深刻的作品。
